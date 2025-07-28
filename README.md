@@ -23,4 +23,4 @@
 
 ### 🤝 Let's connect!
 - ammarsayed83@gmail.com
-- [LinkedIn](https://linkedin.com/in/your-link-here)
+- [[LinkedIn](https://linkedin.com/in/your-link-here)](https://www.linkedin.com/in/ammarelsayed/)
